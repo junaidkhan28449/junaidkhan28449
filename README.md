@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data Science
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on Data Science
-- 📫 How to reach me ...msdsf21m516@pucit.edu.pk
+- 📫 How to reach me ...junaidkhan28449@gmail.com
                          +92 349 1595513
 
 <!---
